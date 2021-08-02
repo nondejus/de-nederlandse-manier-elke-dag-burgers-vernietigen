@@ -1,5 +1,5 @@
 # zorgverzekering-sociale-seriemoordcommandos
 
-'leef en vzkantiegeld'
+'leef en vakantiegeld'
 
 2002-2021
